@@ -1,2 +1,2 @@
-Mathematics bachelor student that is currently very confused, especially with GitHub.
+Mathematics bachelor student who is currently very confused, especially with GitHub.
 😵‍
